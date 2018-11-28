@@ -6,3 +6,5 @@
 > https://theconversation.com/why-arent-there-electric-airplanes-yet-103955
 
 - Simple present.Uso
+
+- https://lingualeo.com/pt/jungle/social-networking-changes-everything-the-new-marketing-and-public-relations-model-by-diana-ennen-2032#/page/1

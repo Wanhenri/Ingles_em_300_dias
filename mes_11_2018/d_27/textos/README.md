@@ -4,3 +4,5 @@
     + 144 Summer jobs. Jackie and Richard talk about the summer jobs they did when they were students. (16 Aug 2018)
     
 > https://theconversation.com/why-arent-there-electric-airplanes-yet-103955
+
+- Simple present.Uso

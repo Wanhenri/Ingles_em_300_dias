@@ -8,3 +8,5 @@
 - Simple present.Uso
 
 - https://lingualeo.com/pt/jungle/social-networking-changes-everything-the-new-marketing-and-public-relations-model-by-diana-ennen-2032#/page/1
+
+- https://www.youtube.com/watch?v=DuQXbW1N4sQ

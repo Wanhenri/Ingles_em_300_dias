@@ -6,3 +6,5 @@ https://summerofcode.withgoogle.com/archive/
 
 <p>2 episódio de Salvation</p>
 <p>1 episódio de Daredevil</p>
+
+https://blog.jupyter.org/outreachy-jupyter-supporting-diversity-in-open-communities-dfa78db4b0bd

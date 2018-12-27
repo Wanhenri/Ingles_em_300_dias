@@ -6,4 +6,6 @@ I'm not kidding!
  You are in the prime of your lives!
  
  
- Red Hot Chili Peppers - Californication
+ song: Red Hot Chili Peppers - Californication
+
+[Steve_Jobs_special_for_Stanford](https://lingualeo.com/pt/jungle/steve-jobs-special-for-stanford-2063#/page/1)
